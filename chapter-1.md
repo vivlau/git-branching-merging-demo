@@ -6,6 +6,8 @@ Cupidatat reprehenderit eu minim velit ipsum ullamco nisi nulla sunt labore labo
 - Other thing
 - Last thing
 
+![](http://i.imgur.com/9tc1cOr.gif)
+
 Commodo nostrud laboris consectetur excepteur. Ex non sit enim qui exercitation incididunt cillum adipisicing. Magna nostrud duis irure occaecat consectetur culpa. Consequat nostrud dolore aliqua deserunt mollit ipsum labore irure qui. Do est exercitation ullamco eiusmod. Enim velit reprehenderit ullamco labore cupidatat velit officia consectetur elit laborum.
 Sit do velit pariatur incididunt enim. Incididunt ullamco magna excepteur commodo magna. Dolore elit sit labore ea officia nisi. Est irure proident dolore nulla in eu non laborum incididunt. Commodo consequat officia exercitation eu labore ullamco do.
 
